@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything, really. I don't mind
 - 📫 How to reach me: via e-mail
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Worked as a singer in a metal band for 15 years!
+- ⚡ Fun fact: Worked as a singer in a metal band for 15 years and I love games.
 -->
